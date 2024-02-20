@@ -1,1 +1,1 @@
-# Tu-compa-ero-ideal
+# Tu-companero-ideal
